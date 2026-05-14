@@ -1,4 +1,4 @@
-
+Download custom dandy's world Scripts for dandy's world, the best script available, featuring instant win and auto-sell. This powerful tool ensures you have the upper hand in
 
 
 
